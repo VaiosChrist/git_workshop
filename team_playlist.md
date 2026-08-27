@@ -3,3 +3,4 @@
 3. Comfortably Numb - Pink Floyd
 4. Nutsell - Alice In Chains
 5. Sultans of Swing - Dire Straits
+6. A Forest - The Cure
