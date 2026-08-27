@@ -1,6 +1,6 @@
-1. So Far Away - Avenged Sevenfold
-2. Black - Pearl Jam
-3. Comfortably Numb - Pink Floyd
+1. Comfortably Numb - Pink Floyd
+2. So Far Away - Avenged Sevenfold
+3. Black - Pearl Jam
 4. Nutsell - Alice In Chains
 5. Sultans of Swing - Dire Straits
 6. A Forest - The Cure
